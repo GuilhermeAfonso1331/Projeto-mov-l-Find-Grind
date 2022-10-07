@@ -1,5 +1,5 @@
 ## **C ![](RackMultipart20221007-1-qklto_html_a9e3558f01d6ed87.png)
- URSO DE ENGENHARIA INFORMÁTICA**
+ CURSO DE ENGENHARIA INFORMÁTICA**
 
 # **Find&Grind**
 
